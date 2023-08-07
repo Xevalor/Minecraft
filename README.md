@@ -1,3 +1,4 @@
+entweder du ladest es goofy runter oder über die Curseforge app
 # Create Astral setup MIT APP
 ## **1.** [Curseforge App](https://www.curseforge.com/) rechts oben runterladen
 ## ![image](https://github.com/Xevalor/Minecraft/assets/133159086/7943b5ca-8e60-4fe8-a154-396c59048915)
@@ -10,7 +11,6 @@
 Fertig du hurensohn
 <br />
 
-entweder du ladest es goofy runter oder über die Curseforge app
 # Create Astral setup OHNE APP
 ## **1.** [Java 17](https://download.oracle.com/java/17/archive/jdk-17.0.8_windows-x64_bin.exe) herunterladen und installieren
 ## **2.** [Create Astral](https://pixeldrain.com/u/dEWjinHY) runterladen
