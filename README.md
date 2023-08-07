@@ -19,6 +19,6 @@
 ## ![image](https://github.com/Xevalor/Minecraft/assets/133159086/93680624-0741-408f-a206-8e2d90ccfd83)
 ## **3.** Auf die 3 punkte und Open Folder
 ## ![image](https://github.com/Xevalor/Minecraft/assets/133159086/f7e3b3e6-3a83-4c08-8d20-96894b59064a)
-## **4.** [mods.zip](https://github.com/Xevalor/Minecraft/files/12270976/mods.zip) Mods in den "mods" folder 
+## **4.** [mods.zip](https://pixeldrain.com/u/V4XFthCX) Mods in den "mods" folder 
 ## ![image](https://github.com/Xevalor/Minecraft/assets/133159086/50eddab2-aad3-4616-9cf8-7ae518a0016e)
 ## Fertig du hurensohn
