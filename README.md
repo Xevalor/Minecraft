@@ -8,4 +8,7 @@
 ## ![image](https://github.com/Xevalor/Minecraft/assets/133159086/149819b9-a7d2-4de1-a76d-fa9a20156d6d)
 ## auf rb 10gb setzten
 ## ![image](https://github.com/Xevalor/Minecraft/assets/133159086/7c3d5e84-7e2d-475a-b611-f3e90dbeeec5) done
+[](https://github.com/Xevalor/Minecraft/assets/133159086/3e83cdbc-3675-410d-999a-e8e005606881)
+[](https://github.com/Xevalor/Minecraft/assets/133159086/8b7cd2a4-8940-4bba-a856-cc5a9323d18e)
+
 fertig du hurensohn
